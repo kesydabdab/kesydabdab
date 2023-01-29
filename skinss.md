@@ -1,7 +1,7 @@
 # kesy's Skinhub 
 
 # [K E S Y](https://drive.google.com/file/d/1pXtxzL1ucAEN0h5czYhhCVys-rRAAmEK/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/970435244870221894/1069076332119593001/screenshot056.jpg)
+![](https://cdn.discordapp.com/attachments/970435244870221894/1069078636591845477/screenshot056.jpg)
 
 # [kesy_default_edit](https://drive.google.com/file/d/1Pa95RjDXEVkXFsOlrXDqWRGkl5lmKJ1G/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/970435244870221894/1069076941052846130/screenshot050.jpg)
