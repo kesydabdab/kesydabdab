@@ -3,6 +3,9 @@
 # [kesiorgrubypenior](https://drive.google.com/file/d/19exymgAJijokhFCILF88rMiopyBjdOo0/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/970435244870221894/1071464211361837076/screenshot064.jpg)
 
+# [hamachiedit](https://drive.google.com/file/d/18QCCfwOYLa7YjxbxdcVWq2UCDN5VlH6Q/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/970435244870221894/1071521403205070918/screenshot066.jpg)
+
 # [K E S Y](https://drive.google.com/file/d/1pXtxzL1ucAEN0h5czYhhCVys-rRAAmEK/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/970435244870221894/1069078636591845477/screenshot056.jpg)
 
