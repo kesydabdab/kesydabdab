@@ -1,5 +1,7 @@
 # kesy's Skinhub 
 
+# https://www.twitch.tv/kapusxpompeczka Dawac follow za dojebane skiny pozdro
+
 # [-kesy dt 24-11-2023](https://cdn.discordapp.com/attachments/1154506166039216249/1185323375384596540/-kesy_dt_24-11-2023.osk?ex=658f316a&is=657cbc6a&hm=7fbcc4af35fbc5c1396b1f98174ea91cc22d7afd293598964eddaaf31c0d6c48&)
 ![](https://cdn.discordapp.com/attachments/1154506166039216249/1185322868402290788/image.png?ex=658f30f2&is=657cbbf2&hm=003e4b009a6037a502082760d1db0340c7bb0aafcb3a0b966bf076ca756ca5e4&)
 
