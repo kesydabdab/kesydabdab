@@ -1,17 +1,9 @@
 # kesy's Skinhub 
 
-# [kesiorgrubypenior](https://drive.google.com/file/d/19exymgAJijokhFCILF88rMiopyBjdOo0/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/970435244870221894/1071464211361837076/screenshot064.jpg)
+# [-kesy dt 24-11-2023](https://cdn.discordapp.com/attachments/1154506166039216249/1185323375384596540/-kesy_dt_24-11-2023.osk?ex=658f316a&is=657cbc6a&hm=7fbcc4af35fbc5c1396b1f98174ea91cc22d7afd293598964eddaaf31c0d6c48&)
+![](https://cdn.discordapp.com/attachments/1154506166039216249/1185322868402290788/image.png?ex=658f30f2&is=657cbbf2&hm=003e4b009a6037a502082760d1db0340c7bb0aafcb3a0b966bf076ca756ca5e4&)
 
-# [hamachiedit](https://drive.google.com/file/d/18QCCfwOYLa7YjxbxdcVWq2UCDN5VlH6Q/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/970435244870221894/1071521403205070918/screenshot066.jpg)
+# [-kesy dt 24-11-2023_thick](https://cdn.discordapp.com/attachments/1154506166039216249/1185321418993455114/-kesy_dt_24-11-2023_thick.osk?ex=658f2f98&is=657cba98&hm=a69d3cc8d84f40ba8654a191e11509e3bc32b8cfb847212578a870a71557a65b&)
+![](https://cdn.discordapp.com/attachments/1154506166039216249/1185320906210431016/image.png?ex=658f2f1e&is=657cba1e&hm=d03695acc1d9da2bcabf293f074fbad357bc38c77dc68f722122a7a5b5935b63&)
 
-# [K E S Y](https://drive.google.com/file/d/1pXtxzL1ucAEN0h5czYhhCVys-rRAAmEK/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/970435244870221894/1069078636591845477/screenshot056.jpg)
-
-# [kesy_default_edit](https://drive.google.com/file/d/1Pa95RjDXEVkXFsOlrXDqWRGkl5lmKJ1G/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/970435244870221894/1069076941052846130/screenshot050.jpg)
-
-# [Rafis 2018-03-26 HDDT slider gradient](https://drive.google.com/file/d/1i3s2W2UqAR7n0zvTfQMjWryYXxAHQF4h/view?usp=sharing)
-![](https://i.imgur.com/WTMN1kX.jpg)
 
